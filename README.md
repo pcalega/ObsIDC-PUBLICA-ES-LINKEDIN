@@ -6,3 +6,4 @@ Postagem Os países que mais geram Energia Limpa no Mundo Relação com Catching
 https://www.linkedin.com/feed/update/urn:li:activity:7315445313530413057?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs                       
 Postagem com arquivo em pdf - O Catching up e o Pós Desenvolvimentismo - Autor Paulo Calegare:                                                                     
 https://www.linkedin.com/feed/update/urn:li:activity:7314701553469161472?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
+Postagem com arquivo em pdf - Fatores Determinantes da Vantagem Competitiva Nacional - Autor Prof. Marcos                                                                         https://www.linkedin.com/feed/update/urn:li:activity:7313923217042096128?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
