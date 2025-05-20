@@ -11,7 +11,7 @@ Postagem A inteligência artificial, IoT e big data impulsionam a transformaçã
 https://www.linkedin.com/feed/update/urn:li:activity:7313192719923712001?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs                      
 Postagem Em um mundo cada vez mais conectado, a inovação e a colaboração entre governos e cidadãos são essenciais para superar desigualdades e fomentar o desenvolvimento 
 sustentável. - Autor - Paulo Calegare
-https://www.linkedin.com/feed/update/urn:li:activity:7313192058494574593?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
+https://www.linkedin.com/feed/update/urn:li:activity:7313192058494574593?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs                     
 Postagem Os estudos sobre catching-up destacam que o progresso exige:
 Investimento em educação e tecnologia.
 Sustentabilidade ambiental como vantagem competitiva.
