@@ -8,5 +8,6 @@ Postagem com arquivo em pdf - O Catching up e o Pós Desenvolvimentismo - Autor 
 https://www.linkedin.com/feed/update/urn:li:activity:7314701553469161472?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs                       
 Postagem com arquivo em pdf - Fatores Determinantes da Vantagem Competitiva Nacional - Autor Marcos Vasconcellos                                                                         https://www.linkedin.com/feed/update/urn:li:activity:7313923217042096128?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs                      
 Postagem A inteligência artificial, IoT e big data impulsionam a transformação, os países e empresas que investirem em inovação não apenas sobrevivem — eles prosperam-autor Paulo Calegare 
+
 https://www.linkedin.com/feed/update/urn:li:activity:7313192719923712001?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
 https://www.linkedin.com/feed/update/urn:li:activity:7313192058494574593?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
