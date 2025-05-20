@@ -18,3 +18,5 @@ Sustentabilidade ambiental como vantagem competitiva.
 Governança eficiente, capaz de engajar a população.
 🚀 Exemplo em Ação: Ouvidoria de Mogi das Cruzes - Autor - Paulo Calegare
 https://www.linkedin.com/feed/update/urn:li:activity:7313191539277488129?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
+Postagem W. Edwards Deming, o "papa" da qualidade total cunhou a frase : " Bad system will beat a good man everytime" - Autor: Paulo Calegare 
+ https://www.linkedin.com/feed/update/urn:li:activity:7313189884968509440?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAPAw20BhebRtabVhiupxFIck-gY-PPr_Gs
